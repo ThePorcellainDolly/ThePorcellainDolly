@@ -1,2 +1,1 @@
-<img width="2137" height="1238" alt="17 sin título_20260429182938" src="https://github.com/user-attachments/assets/3e413195-7beb-4699-8bb1-7efdb8f304f8" />
- Wip :3
+<img width="735" height="357" alt="ae9447358188a74d6217a120a88958d2" src="https://github.com/user-attachments/assets/a13563b3-c201-4f99-9b6d-6a96193e6dd2" />
